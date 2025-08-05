@@ -1,0 +1,2 @@
+# LandslideRudraprayag
+Images and inventory
